@@ -1,1 +1,1 @@
-
+Assingments on statistics
